@@ -1,1 +1,1 @@
-[GitHub Pages](https://toshiteshigure.github.io/links_design/)
+[GitHub Pages](https://toshiteshigure.github.io/links-design/)
